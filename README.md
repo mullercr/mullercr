@@ -23,8 +23,7 @@ Here are some ideas to get you started:
 
 💼 With over 5 years of experience in human resources, my primary focus has been talent attraction. However, I've also navigated through diverse ecosystems, including training and development, climate and culture, and various administrative functions.
 
-📚 My academic foundation includes degrees in Psychology, Human Resources Management, and Business Management with a concentration on behavioral competencies. Complementing my formal education, I've pursued a range of courses in Diversity and Inclusion, and Technology Professional Recruitment, and served in roles such as Business Partner.
-
+📚 My academic foundation includes degrees in Psychology, Human Resources Management, and Business Management with a concentration on behavioral competencies. Complementing my formal education, I've pursued a range of courses in Diversity and Inclusion, Technology Professional Recruitment, and Business Partner operating model.
 🙏 Feel free to reach out—I'd love to meet you!
 
 You can find me here: <div><a href="https://www.linkedin.com/in/cristinemuller" target="_blank"><img loading="lazy" src="https://img.shields.io/badge/-LinkedIn-%230077B5?style=for-the-badge&logo=linkedin&logoColor=white" target="_blank"></a> <a href = "mailto:cristine.muller@gympass.com"><img loading="lazy" src="https://img.shields.io/badge/Gmail-D14836?style=for-the-badge&logo=gmail&logoColor=white" target="_blank"></a>
