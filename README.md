@@ -17,7 +17,7 @@ Here are some ideas to get you started:
 
 👋 I'm Cris!
 
-🧠 Driven by a passion for understanding human behavior, my professional journey has led me to specialize in Tech Recruitment, currently working at @Gympass. As a Recruiter, my goal is to craft an exceptional experience for candidates, bridging the gap between extraordinary talents and the specific needs of the business.
+🧠 Driven by a passion for understanding human behavior, my professional journey has led me to specialize in Tech Recruitment, currently working at @Wellhub (formerly Gympass). As a Recruiter, my goal is to craft an exceptional experience for candidates, bridging the gap between extraordinary talents and the specific needs of the business.
 
 💡 Renowned for my creative approach, I tackle my responsibilities with innovation, an open mind, and a strong emphasis on organization and collaboration.
 
